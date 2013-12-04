@@ -1,4 +1,4 @@
 predestinados
 =============
 
-Predestinado para transformar el mundo por Jesucristo
+Predestinado para transformar el mundo por medio de Jesucristo
